@@ -3,4 +3,4 @@
 
 ## Última atualização de status HackerRank!!!
 
-![image](https://user-images.githubusercontent.com/73142478/192025675-ca636154-37c8-4b1b-b5ec-c599c5c87cba.png)
+![image](https://user-images.githubusercontent.com/73142478/192177168-d6007177-3d6f-49eb-9a1d-39aa34300858.png)
